@@ -1,0 +1,8 @@
+- 👋 Hi, I’m @SxrahBanana
+- 👀 I’m interested in sports
+- 🌱 I’m currently learning nothing
+- 💞️ I’m looking to collaborate on idk
+- 📫 How to reach me: Text me in discord! 
+- 🎥 My discord: ඞSxrahඞ#5677
+--->
+- 📸 My tiktok is: sxrah_stxr
